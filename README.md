@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @javaminov
+- 👋 Hi, I’m javahir abdumaminov.
 - 👀 I’m interested in backend!
 - 🌱 I’m currently learning school.
 - 💞️ I’m looking to collaborate on meta 
